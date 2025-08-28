@@ -190,7 +190,7 @@ Características:
 
 💼 Experiência Profissional
 
-🔧 Assistente de TI | Suporte Técnico
+🔧 Analista de Suporte de TI | Suporte Técnico
 
 Responsabilidades:
 
